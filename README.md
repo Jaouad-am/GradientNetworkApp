@@ -1,5 +1,5 @@
-# <a href="">🚀 Gradient Network App! Click Here!</a>
-*
+# <a href="https://app.gradient.network/signup?code=HNL8BO">🚀 Gradient Network App! Click Here!</a>
+* Gradient Network Referral Code:"HNL8BO"
 
 # 🌟 Key Features
 
@@ -9,6 +9,6 @@
 
 * 
 
-# <a href="">🔗 Ready to Start?</a>
+# <a href="https://app.gradient.network/signup?code=HNL8BO">🔗 Ready to Start?</a>
 
 * Join today!
